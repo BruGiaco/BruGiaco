@@ -7,7 +7,7 @@
 
 - ⚡ Fun fact **I like to read a LOT of books**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
